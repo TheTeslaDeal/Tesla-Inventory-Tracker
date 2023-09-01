@@ -6,4 +6,4 @@ Tesla Model Y is less than $44,000! Tesla now offers substantil discount for inv
 
 
 
-But the great deal is not always available, introducing [https://TheTeslaDeal.com](https://TheTeslaDeal.com), a free service that helps you track Tesla inventory models and notify you once a deal you want is found!
+But the great deal is not always available, introducing [https://TheTeslaDeal.com](https://TheTeslaDeal.com), a free service that helps you track the price of Tesla inventory models and notify you once a deal you want is found!
